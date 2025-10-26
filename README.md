@@ -1,0 +1,2 @@
+# WW_Gen10_YogaPro7_PV_300x600
+WW_Gen10_YogaPro7_PV_300x600
